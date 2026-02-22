@@ -1,1 +1,1 @@
-mostly offtab, orangx sok sibuk
+https://share.google/mF2AzDzMXuJCvRLz9
